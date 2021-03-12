@@ -26,5 +26,7 @@ Shadownote: You and I weren't always on good terms, but you sure as hell made ha
 
 Vevvywick: You and spirit were honestly the few best of the Tyrs I've seen, (especially due to grimm's heavy restriction on it :yawn) yet all in all, I enjoyed having your presence there, in my eyes, you were a better friend than spirit would ever be. Good-luck <3
 
+XxDiamondWarriorxX: It's been ages since we've seen you here, I'm glad you were a former member, I should've left this group ages ago with you. This group is a curse honestly, but you and the very few people I've met here made this community amazing. 
+
 --
 End
